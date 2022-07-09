@@ -8,7 +8,8 @@
 - 📫 How to reach me: IG - @gauravb_29
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: NOTHING Starts With 'N' & Ends With 'G' 😄
-- Social Accounts: [Twitter -@GouravBishnoi](https://twitter.com/GBishnoi01)
+- Social Accounts: 
+- [Twitter -@GouravBishnoi](https://twitter.com/GBishnoi01)
 - ▶️[YouTube- @GouravBishnoi](https://www.youtube.com/channel/UCSRHzcQZhlOevGlLsrE1kyA) 
 
 
